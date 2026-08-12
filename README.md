@@ -1,3 +1,4 @@
+<img width="1254" height="1254" alt="ChatGPT Image Aug 12, 2026, 12_36_49 PM" src="https://github.com/user-attachments/assets/2777121c-7776-45bd-978c-8aa26ca3e022" />
 # images
 
 ![carrot](https://github.com/suhit123/images/assets/105535366/7227eac0-296a-4b0c-8173-bf1c158d91bb)
